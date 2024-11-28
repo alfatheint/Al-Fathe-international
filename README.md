@@ -60,13 +60,21 @@ Looking ahead, Al Fathe has plans to import and shake hands with world-class sup
 
 Discover the potential of your land with our Agriculture Consultancy services. We team of specialize highly qualified professionals in turning barren lands into productive assets that contribute to the market. 
 Our key features include:
+
 SELECTION OF LAND
+
 Make informed decisions about land choices with our expert guidance. We assist you in identifying the most suitable land for your agricultural endeavors, taking into consideration factors such as soil quality, climate, irrigation source, drainage and Road structure availability.
+
 LAND TRANSFORMATION
+
 Witness the metamorphosis of barren land into productive and fertile fields. Our consultancy provides a systematic and detailed approach to land transformation, ensuring optimal utilization of resources for enhanced agricultural output
+
 COMPREHENSIVE PLANNING
+
 Engage in strategic planning and feasibility studies tailored to your specific needs. Our experts assist in developing a detailed roadmap for your agricultural project, covering aspects such as land selection, farm structure, and sustainable practices.
+
 END TO END SERVICES
+
 Experience seamless support from the initial stages of land preparation to the final steps of quality haymaking, and value additional products such as TMR or Pellets, We guide you through the entire process, including crop sowing, the selection of appropriate machinery, team training, and implementing practices that ensure the production of high-quality crops.
 Our Agriculture Consultancy services are designed to not only enhance agricultural productivity but also to empower you with the knowledge and tools needed for sustained success in the dynamic field of agriculture. Choose us as your partner in cultivating success on your agricultural journey.
 
@@ -75,8 +83,11 @@ ONE TEAM ONE DREAM
 INNOVATIVE FARMING SOLUTIONS
 
 Engr. Nadir Ali holds a Master of Engineering specializing in Energy and Environment. With a robust background spanning more than 15 years, he has amassed extensive expertise in various facets of agriculture including farming, haymaking, soil management, farm structure design, as well as land and water management. His rich professional journey includes notable tenures with multinational agriculture giants such as Al Dahra Agriculture (UAE) and Kohnlee Feeders Home (South Korea), where he has served in pivotal roles ranging from field Engineer to Project Manager and farm research & development Engineer. He is currently pursuing a PhD in Energy and Environment.
+
 Mr. Arslan Saeed, holding a B.Sc. (Hons.) in Agriculture with a specialization in Entomology, possesses a demonstrated track record of crafting and implementing effective agricultural programs. With three years of hands-on experience, Arslan has honed his skills in pest management and crop protection strategies, showcasing his expertise in ensuring sustainable agricultural practices. His deep understanding of entomology equips him to tackle pest-related challenges with precision, making him a valuable asset in agricultural endeavors.
+
 Engr. Ms. Komal Qasim holds a Master of Engineering in Energy and Environment. Her expertise in Land, water & drainage management, and environmental research for over 5 years, highlighted by published work on crop production and conservation, positions her as a valuable contributor to sustainable agriculture and environmental initiatives.
+
 Mr. Muhammad AbdulAhad holds a BS.c (Hons) in Agriculture (Horticulture). With expertise in plant biology, growth management, and pest control, coupled with practical experience in safety inspection, he brings valuable skills to our agricultural experts team. Proficient in grafting, air layering, and orchard layout management, he is equipped to contribute effectively to our team. Muhammad holds certifications in water management and landscaping, as well as safety certification in handling agricultural hazardous chemicals. With a comprehensive skill set encompassing grafting and cutting, air layering and budding, and management of horticulture & crops.
 
 ESTEEMED CLIENTS
@@ -113,7 +124,9 @@ Several other smaller units of Haymaking, Vegetable & Orchard Grower under the C
 | SEEDS OF FINANCIAL GROWTH |
 
 Ensure the financial success of your agricultural venture with our Agriculture Finance Management services. We go beyond traditional financial planning, offering tailored financial plans for sustainable and profitable farming.
+
 CUSTOMIZED FINANCIAL PLANS:
+
 Develop personalized financial plans, and integrate risk assessment and management strategies into your financial plans, that cater to the specific needs and goals of each farmer. Consider factors such as crop cycles, market trends, and input costs to create optimistic & realistic, and achievable financial targets.
 EDUCATION AND TRAINING:
 Offer workshops or online training sessions to educate farmers on financial literacy and management. Equip them with the knowledge and skills needed to understand financial statements, budget effectively, and make informed decisions.
@@ -124,7 +137,9 @@ Our agriculture Finance Management service lies in its ability to empower farmer
 4. MARKETING
 
 "At our company, we offer marketing services that bridge the gap between farmers and markets. We work to promote and sell agricultural products by employing strategic planning, branding, and various channels. Our goal is to enhance visibility for farmers, attract customers, and facilitate the sale of their produce in the market.”
+
 DIGITAL AND CONTENT MARKETING STRATEGY:
+
 Our comprehensive approach to digital and content marketing encompasses a range of strategies tailored to maximize online visibility, engagement, and conversion rates. By leveraging cutting-edge digital platforms, targeted content creation, and data-driven insights, we craft compelling campaigns that resonate with our audience, driving brand awareness, customer acquisition, and long-term loyalty.
 
 BRANDING:
